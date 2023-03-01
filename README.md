@@ -1,4 +1,5 @@
 # GUESS
 
-Trixy lala
-lalalalalala
+Lofranco, Trixy Rose
+Kasil, Sunny Rose
+Nakila, Lyra Gleenith
