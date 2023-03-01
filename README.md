@@ -1,4 +1,9 @@
 # GUESS
 
-Trixy lala
-lalalalalala
+Foods
+Him
+Me
+Myself
+I
+Love 
+Myself
